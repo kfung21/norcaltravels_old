@@ -144,7 +144,7 @@ export default {
   width: 70%;
   border-radius: 50px;
   padding: 5px 16px;
-  transform: translate(20%)
+  transform: translate(10%)
 }
 
 .card:hover {
