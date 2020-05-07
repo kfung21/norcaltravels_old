@@ -8,7 +8,6 @@ module.exports = {
 		// repoLabel: 'Repo',
 		// editLinks: true,
 		// editLinkText: 'Found a bug? Help me improve this page!',
-		activeHeaderLinks: true,
 		search: true,
     	searchMaxSuggestions: 10,
 		sidebar: false,

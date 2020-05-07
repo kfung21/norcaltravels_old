@@ -9,7 +9,6 @@ featuredimg: https://images.unsplash.com/photo-1527613426441-4da17471b66d?ixlib=
 summary: A Global Pandemic sweeps the world
 ---
 
-# Coronavirus
 The first worldwide pandemic has swept the globe to begin 2020. Early on the virus started in China and spread through Japan and Italy. By the middle of March, here in the States, Coronavirus (Covid-19) began to be taken seriously and the nation underwent a quarantine for the first time in it's history. 
 
 The NBA was the first sports league to suspend play along with the NHL and MLB for the upcoming seasons. Large gatherings were banned then restaurants and bars followed suit. 
