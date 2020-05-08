@@ -7,6 +7,7 @@ author: NCT
 blog: true
 summary: A Global Pandemic sweeps the world
 ---
+<TagLinks />
 <img src="https://images.unsplash.com/photo-1527613426441-4da17471b66d?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=1335&q=80" width=100%>
 
 #### *A Sweeping Virus*

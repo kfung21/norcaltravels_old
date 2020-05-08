@@ -8,6 +8,7 @@ author: NCT
 blog: true
 summary: A legacy lives onto the next generation.
 ---
+<TagLinks />
 <img src="https://drive.google.com/uc?export=view&id=1iP7snvMSOaosBO_SlXaDf-LZyVr2Ti7T" width=100%>
 
 ### *The Last Dance*

@@ -14,7 +14,8 @@ module.exports = {
 		nav: [
 			{text: 'Blog', link: '/blog/' },
 			{text: 'Tags', link: '/tags/'},
-			{text: 'Archive', link: '/archive/'}
+			{text: 'Archive', link: '/archive/'},
+			{text: 'About', link: '/about/'}
 		],
 		logo: 'https://drive.google.com/uc?export=view&id=13SrSX2X-3bJVPQfJ1Jws2tOpZJM_xC1D',
 		docsDir: 'src',
