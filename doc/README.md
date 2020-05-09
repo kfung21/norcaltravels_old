@@ -6,6 +6,7 @@ tagline: Home of the NorCal Traveler
 taglineLink: /blog/
 actionText: Let's Go!
 actionLink: /blog/
+pageClass: homepage
 # layout: SpecialLayout #uses SpecialLayout.vue instead
 features:
   - title: Living
