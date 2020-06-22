@@ -1,3 +1,7 @@
+---
+blog: false
+sidebar: None
+---
 <br/>
 <br/>
 

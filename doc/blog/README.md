@@ -1,5 +1,6 @@
 ---
 title: Blog
+sidebar: None
 ---
 
 <BlogPostList 

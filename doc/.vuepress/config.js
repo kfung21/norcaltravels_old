@@ -10,8 +10,8 @@ module.exports = {
 		// editLinkText: 'Found a bug? Help me improve this page!',
 		search: true,
     	searchMaxSuggestions: 10,
-		sidebar: 'auto',
-		sidebarDepth: 2,
+		sidebar: false,
+		sidebarDepth: 4,
 		nav: [
 			{text: 'Blog', link: '/blog/' },
 			{text: 'Tags', link: '/tags/'},
