@@ -12,7 +12,7 @@ summary: Bad Jokes, Puns, and One-Liners
 The original source of this is from Reader's Digest and can be found <a href="https://www.rd.com/jokes/">here</a>
 
 ## Puns
-
+Testing update pwa
 
 ## Bad Puns
 CORNY PIRATE HUMOR
