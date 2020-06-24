@@ -30,7 +30,7 @@ export default {
       for (let page of this.$site.pages) {
         for (let index in page.frontmatter.tags) {
           const tag = page.frontmatter.tags[index]
-          if (tag in tags) {
+          if (tag in tags && page.frontmatter.hidden==false) {
             tags[tag].push(page)
           } else {
             tags[tag] = [page]

@@ -6,6 +6,7 @@ tags:
 author: NCT
 blog: true
 sidebar: auto
+hidden: true
 summary: How is NorCal defined?
 ---
 <TagLinks />
