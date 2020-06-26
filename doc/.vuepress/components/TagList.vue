@@ -30,14 +30,16 @@ export default {
       for (let page of this.$site.pages) {
         for (let index in page.frontmatter.tags) {
           const tag = page.frontmatter.tags[index]
-          if (tag in tags && page.frontmatter.hidden==true) {
+          if (tag in tags && page.frontmatter.hidden==false) {
             tags[tag].push(page)
+          } else if (page.frontmatter.hidden==true) {
+
           } else {
             tags[tag] = [page]
           }
         }
       }
-      console.log(tags);
+      // console.log(tags);
       return tags
     }
   },

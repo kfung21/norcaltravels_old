@@ -41,6 +41,7 @@ module.exports = {
 		],
 		'vuepress-plugin-reading-time',
 		'vuepress-plugin-janitor',
+		'fulltext-search',
 		'@vssue/vuepress-plugin-vssue',{
 			// set `platform` rather than `api`
 			platform: 'github',
