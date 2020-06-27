@@ -3522,254 +3522,254 @@ STEPHEN COLBERT ON INTERNSHIPS <br/>
 *Try an internship! Internships give you all the experience of a summer job without the hassle of a paycheck. Stephen Colbert*
 
 ## Food Jokes
-GLUTENATTACK <br/>
-*Guystaring at an ambulance in front of Whole Foods: “Somebody must have accidentally eaten gluten.”*
+GLUTEN ATTACK <br/>
+*Guy staring at an ambulance in front of Whole Foods: “Somebody must have accidentally eaten gluten.”*
 
-FRESH,CANNED, OR FROZEN <br/>
-*Aman’s bragging about his promotion to vice president got so out of hand even his wife was annoyed. “Look, being a vice president isn’t that special,” she said. “They even have a vice president of peas at the supermarket!” Not believing her for one second, the man called the supermarket and demanded, “Get me the vice president of peas!” The clerk replied, “Fresh, canned, or frozen?” —Submitted by Norman Middleton*
+FRESH, CANNED, OR FROZEN <br/>
+*A man’s bragging about his promotion to vice president got so out of hand even his wife was annoyed. “Look, being a vice president isn’t that special,” she said. “They even have a vice president of peas at the supermarket!” Not believing her for one second, the man called the supermarket and demanded, “Get me the vice president of peas!” The clerk replied, “Fresh, canned, or frozen?” —Submitted by Norman Middleton*
 
-MORNINGTEA <br/>
-*Q:Whathas T in the beginning, T in the middle, and T at the end?* <br/>
+MORNING TEA <br/>
+*Q:What has T in the beginning, T in the middle, and T at the end?* <br/>
 A: A teapot.
 
-TREESODA <br/>
-*Q:Whatis a tree’s favorite soda?* <br/>
+TREE SODA <br/>
+*Q:What is a tree’s favorite soda?* <br/>
 A: Root Beer.
 
-FASTERFOOD <br/>
-*Q:Whydoesn't McDonald's serve escargot?* <br/>
+FASTER FOOD <br/>
+*Q:Why doesn't McDonald's serve escargot?* <br/>
 A: It's not fast food!
 
-FOODFOR TWO <br/>
-*Starvingafter hours of driving nonstop, my husband and I pulled over at a truck stop. While he gassed up the car, I went into the restaurant and placed our order to go. After writing it all down, the girl behind the register asked, “Will that be all for you?” “No,” I replied a bit defensively. “Some of it’s for my husband.”*
+FOOD FOR TWO <br/>
+*Starvin gafter hours of driving nonstop, my husband and I pulled over at a truck stop. While he gassed up the car, I went into the restaurant and placed our order to go. After writing it all down, the girl behind the register asked, “Will that be all for you?” “No,” I replied a bit defensively. “Some of it’s for my husband.”*
 
-STOLENLEEK <br/>
-*Didyou hear how they caught the great produce bandit? He stopped to take a leek.*
+STOLEN LEEK <br/>
+*Did you hear how they caught the great produce bandit? He stopped to take a leek.*
 
-FOODFOR THOUGHT <br/>
-*Myneighbor texted me, "I just made synonym buns!"*
+FOOD FOR THOUGHT <br/>
+*My neighbor texted me, "I just made synonym buns!"*
 
-*Itexted back, "You mean like grammar use to make?" I haven't heard from her since.*
+*I texted back, "You mean like grammar use to make?" I haven't heard from her since.*
 
-REALLYBIG STEAKS <br/>
-*Aswe drove into Traverse City, Michigan, we were greeted by a billboard advertising a restaurant in town. Its claim: “Steaks bigger than an 8th Street pothole.”*
+REALLY BIG STEAKS <br/>
+*As we drove into Traverse City, Michigan, we were greeted by a billboard advertising a restaurant in town. Its claim: “Steaks bigger than an 8th Street pothole.”*
 
-COMFORTFOOD <br/>
-*Q:Whichdessert is perfect for eating in bed?* <br/>
+COMFORT FOOD <br/>
+*Q:Which dessert is perfect for eating in bed?* <br/>
 A: A sheet cake.
 
-CHEESEFACTORY <br/>
-*Q:Whathappened after an explosion at a French cheese factory?* <br/>
+CHEESE FACTORY <br/>
+*Q:What happened after an explosion at a French cheese factory?* <br/>
 A: All that was left was de brie.
 
-ALWAYSIN THE SHOP <br/>
-*Q:Whydid the butcher work extra hours at the shop?* <br/>
+ALWAYS IN THE SHOP <br/>
+*Q:Why did the butcher work extra hours at the shop?* <br/>
 A: To make ends meat
 
-HIGHROLLER <br/>
-*Q:Whycouldn't the sesame seed leave the casino?* <br/>
+HIGH ROLLER <br/>
+*Q:Why couldn't the sesame seed leave the casino?* <br/>
 A: He was on a roll!
 
-AWARD-WINNINGDESSERT <br/>
-*Q:Who'sa dessert's favorite actor?* <br/>
+AWARD-WINNING DESSERT <br/>
+*Q:Who's a dessert's favorite actor?* <br/>
 A: Robert Brownie, Jr.
 
-REDBITE, GREEN BITE <br/>
-*Q:Whendo you go at red and stop at green?* <br/>
+RED BITE, GREEN BITE <br/>
+*Q:When do you go at red and stop at green?* <br/>
 A: When you’re eating a watermelon.
 
-TURNTHAT FROWN UPSIDE DOWN <br/>
-*Q:Whatdo you call cheese that is sad?* <br/>
+TURN THAT FROWN UPSIDE DOWN <br/>
+*Q:What do you call cheese that is sad?* <br/>
 A: Blue cheese.
 
-ROCKON! <br/>
-*Whatdo you call blueberries playing the guitar? A jam session.*
+ROCK ON! <br/>
+*What do you call blueberries playing the guitar? A jam session.*
 
-ONTHE SCENE <br/>
-*Q:Didyou hear about the carrot detective?* <br/>
+ON THE SCENE <br/>
+*Q:Did you hear about the carrot detective?* <br/>
 A: He got to the root of every case.
 
 CRABBY! <br/>
-*Whatdo you get if you cross an apple with a shellfish? A crab apple!*
+*What do you get if you cross an apple with a shellfish? A crab apple!*
 
-ANDTHE OSCAR GOES TO… <br/>
-*Didyou see the movie about the hot dog? It was an Oscar wiener.*
+AND THE OSCAR GOES TO… <br/>
+*Did you see the movie about the hot dog? It was an Oscar wiener.*
 
-LOAFLAUGHS <br/>
-*Q.What'sthe difference between a shamrock and a bread knife that gets used a lot?* <br/>
+LOAF LAUGHS <br/>
+*Q.What's the difference between a shamrock and a bread knife that gets used a lot?* <br/>
 A. The shamrock is a four-leaf clover, and the knife is a four-loaf cleaver.
 
-WIENERWIENER <br/>
-*Q.Whatdid the hot dog say when his friend passed him in the race?* <br/>
+WIENER WIENER <br/>
+*Q.What did the hot dog say when his friend passed him in the race?* <br/>
 A. Wow, I relish the fact that you've mustard the strength to ketchup to me.
 
 WHEEEE! <br/>
-*Q.Whichthrill ride does a wine glass love to go on the most?* <br/>
+*Q.Which thrill ride does a wine glass love to go on the most?* <br/>
 A. A coaster! (Credit: justbadpuns.com)
 
-FOODFORTRESS <br/>
-*Q.Howdo you keep intruders out of a castle made of cheese?* <br/>
+FOOD FORTRESS <br/>
+*Q.How do you keep intruders out of a castle made of cheese?* <br/>
 A. Moatzarella.  
 
-ALLUP IN YOUR GRILL <br/>
-*Q.Whatdo you call a grilled cheese sandwich that gets right up in your face?* <br/>
-A. Too  for comfort food.
+ALL UP IN YOUR GRILL <br/>
+*Q.What do you call a grilled cheese sandwich that gets right up in your face?* <br/>
+A. Too for comfort food.
 
-TICTAC DOUGH <br/>
-*Didyou hear the one about the guy who invented Tic Tacs? They say he made a mint.*
+TIC TAC DOUGH <br/>
+*Did you hear the one about the guy who invented Tic Tacs? They say he made a mint.*
 
-NOTQUITE COOL AS A CUCUMBER <br/>
-*Q.Whichtype of vegetable tries to be cool, but is only partly successful at it?* <br/>
+NOT QUITE COOL AS A CUCUMBER <br/>
+*Q.Which type of vegetable tries to be cool, but is only partly successful at it?* <br/>
 A. The radish.
 
-PARDONMY FRENCH (FRIES) <br/>
-*Ican't stand potato puns. I think they're pomme de terrible.*
+PARDON MY FRENCH (FRIES) <br/>
+*I can't stand potato puns. I think they're pomme de terrible.*
 
-GIVEPEAS A CHANCE <br/>
-*Q.Whatdo you call a round, green vegetable that breaks out of prison?* <br/>
+GIVE PEAS A CHANCE <br/>
+*Q.What do you call a round, green vegetable that breaks out of prison?* <br/>
 A. An escapea.
 
-CULTURALLYSIGNIFICANT <br/>
-*Q.Whydoes yogurt love going to museums?* <br/>
+CULTURALLY SIGNIFICANT <br/>
+*Q.Why does yogurt love going to museums?* <br/>
 A. Because it's cultured.
 
-SPAGHETTOUTTA HERE <br/>
-*Q.Whatdo you call a fake noodle?* <br/>
+SPAGHETT OUTTA HERE <br/>
+*Q.What do you call a fake noodle?* <br/>
 A. An impasta.
 
 THATS ONE WAY TO DO IT <br/>
-*Person1: I just burned 2000 calories in 20 minutes. Person 2: How?! Person 1: I forgot to take my brownies out of the oven.*
+*Person 1: I just burned 2000 calories in 20 minutes. Person 2: How?! Person 1: I forgot to take my brownies out of the oven.*
 
-AROTTEN JOKE <br/>
-*SPOILERALERT: That milk has been in the fridge for three weeks.*
+A ROTTEN JOKE <br/>
+*SPOILER ALERT: That milk has been in the fridge for three weeks.*
 
-PAINTDIET <br/>
-*Q:Whydid the dieter go to the paint store?* <br/>
+PAINT DIET <br/>
+*Q:Why did the dieter go to the paint store?* <br/>
 A: He wanted to get thinner.
 
-HOWSWEET <br/>
-*Q:Whydo watermelons have fancy weddings?* <br/>
+HOW SWEET <br/>
+*Q:Why do watermelons have fancy weddings?* <br/>
 A: Because they cantaloupe.
 
-GRAPESOF WRATH <br/>
-*Whatdoes a grape say when it gets stepped on? Nothing, it just lets out a little wine.*
+GRAPES OF WRATH <br/>
+*What does a grape say when it gets stepped on? Nothing, it just lets out a little wine.*
 
-HES IN THE GRAVE-Y <br/>
-*Didyou hear about the Italian chef with a terminal illness? He pastaway.*
+HE'S IN THE GRAVE-Y <br/>
+*Did you hear about the Italian chef with a terminal illness? He pastaway.*
 
-THIRSTQUENCHER <br/>
-*Boy,I just got hit in the head with a can of soda. I was lucky it was a soft drink.*
+THIRST QUENCHER <br/>
+*Boy, I just got hit in the head with a can of soda. I was lucky it was a soft drink.*
 
-WHATTAHAM <br/>
-*Q:Whatdo you get when you play Tug-of-War with a pig?* <br/>
+WHATTA HAM <br/>
+*Q:What do you get when you play Tug-of-War with a pig?* <br/>
 A: Pulled-Pork.
 
-CLAMUP <br/>
-*Iwent to a seafood restaurant and slipped. I pulled a mussel.*
+CLAM UP <br/>
+*I went to a seafood restaurant and slipped. I pulled a mussel.*
 
-EMOTIONALWEDDING <br/>
-*Itwas an emotional wedding. Even the cake was in tiers.*
+EMOTIONAL WEDDING <br/>
+*It was an emotional wedding. Even the cake was in tiers.*
 
-THEGARNISH KING <br/>
-*Q:Whatdo you call the king of vegetables?* <br/>
+THE GARNISH KING <br/>
+*Q:What do you call the king of vegetables?* <br/>
 A: Elvis Parsley.
 
 EGG-CELLENT <br/>
-*Youknow what’s hard to beat for breakfast? A boiled egg.*
+*You know what’s hard to beat for breakfast? A boiled egg.*
 
-BETTERLATTE THAN NEVER <br/>
-*Spendinga lot of time at the coffee bar can cause a latte problems.*
+BETTER LATTE THAN NEVER <br/>
+*Spending a lot of time at the coffee bar can cause a latte problems.*
 
-FUNNYHOT DOG <br/>
-*Didyou see the movie about the hot dog? It was an Oscar Wiener.*
+FUNNY HOT DOG <br/>
+*Did you see the movie about the hot dog? It was an Oscar Wiener.*
 
-MILKINGIT <br/>
-*Aguy just threw a glass of milk at me. How dairy!*
+MILKING IT <br/>
+*A guy just threw a glass of milk at me. How dairy!*
 
-THYMETO LAUGH <br/>
-*Iwas going to grow an herb garden, but I couldn’t find the thyme.*
+THYME TO LAUGH <br/>
+*I was going to grow an herb garden, but I couldn’t find the thyme.*
 
-BANANAPHILES <br/>
-*Themajority of Americans find bananas a peeling.*
+BANANA PHILES <br/>
+*The majority of Americans find bananas a peeling.*
 
-PRICEYCANDY <br/>
-*Theprice of candy at the movie theater is ridiculous. They're always raisinet!*
+PRICEY CANDY <br/>
+*The price of candy at the movie theater is ridiculous. They're always raisinet!*
 
 PANCAKESVS. WAFFLES <br/>
-*Everymorning I think I’m going to make pancakes, but I keep waffling.*
+*Every morning I think I’m going to make pancakes, but I keep waffling.*
 
-PERFECTCANDY CANES <br/>
-*Ilove when candy canes are in mint condition.*
+PERFECT CANDY CANES <br/>
+*I love when candy canes are in mint condition.*
 
-VEGETARIANDISS <br/>
-*Becominga vegetarian was a huge missed steak.*
+VEGETARIAN DISS <br/>
+*Becoming a vegetarian was a huge missed steak.*
 
-WINTERDOGS <br/>
-*Q:Whatare hot dogs called in winter?* <br/>
+WINTER DOGS <br/>
+*Q:What are hot dogs called in winter?* <br/>
 A: Chilly dogs
 
-FINEDINING <br/>
-*Aman told a friend about taking his wife to dinner for their anniversary. He described how the food was made in front of them.*
+FINE DINING <br/>
+*A man told a friend about taking his wife to dinner for their anniversary. He described how the food was made in front of them.*
 
-*Thefriend said, “I’ve heard of places like that, what is the name of the restaurant?” The man replied, “Subway.”*
+*The friend said, “I’ve heard of places like that, what is the name of the restaurant?” The man replied, “Subway.”*
 
-RIPEEGGS <br/>
-*Mygranddaughter told me,  “Don’t buy brown eggs; they’re not ripe yet.”*
+RIPE EGGS <br/>
+*My granddaughter told me,  “Don’t buy brown eggs; they’re not ripe yet.”*
 
-PUNWELL DONE <br/>
-*Becominga vegetarian is a huge missed steak.*
+PUN WELL DONE <br/>
+*Becoming a vegetarian is a huge missed steak.*
 
-YOUCAN’T AFFORD THIS PUN <br/>
-*Q:Whats the worst part about movie theater candy prices?* <br/>
+YOU CAN’T AFFORD THIS PUN <br/>
+*Q: What's the worst part about movie theater candy prices?* <br/>
 A: They're always raisinet.
 
 THERES AN OLD SAYING… <br/>
-*Timeflies like an arrow. Fruit flies like a banana.*
+*Time flies like an arrow. Fruit flies like a banana.*
 
-SOTHAT’S WHY THEY’RE RED… <br/>
-*Q:Whydid the tomato blush?* <br/>
+SO THAT’S WHY THEY’RE RED… <br/>
+*Q: Why did the tomato blush?* <br/>
 A: Because it saw the salad dressing.
 
-YOUBUTTER BE QUIET <br/>
-*Q:Didyou hear the one about the greedy peanut butter?* <br/>
+YOU BUTTER BE QUIET <br/>
+*Q: Did you hear the one about the greedy peanut butter?* <br/>
 A: I'm not telling you. You might spread it.
 
-NEVERTRUST A VEGGIE <br/>
-*Q:Whyshouldn't you tell a secret on a farm?* <br/>
+NEVER TRUST A VEGGIE <br/>
+*Q: Why shouldn't you tell a secret on a farm?* <br/>
 A: Because the potatoes have eyes and the corn has ears.
 
-NOONION, NO CRY <br/>
+NO ONION, NO CRY <br/>
 *Alot of people cry when they cut onions. The trick is not to form an emotional bond.*
 
-THISPLATE IS HOT <br/>
-*Q:Whatdo you call cheese that isn’t yours?* <br/>
+THIS PLATE IS HOT <br/>
+*Q:What do you call cheese that isn’t yours?* <br/>
 A: Nacho cheese!
 
-PARKYOUR BUNS <br/>
-*Q:Whycouldn’t the sesame seed leave the poker table?* <br/>
+PARK YOUR BUNS <br/>
+*Q: Why couldn’t the sesame seed leave the poker table?* <br/>
 A: Because he was on a roll.
 
-STRAIGHTTO THE GLUTES <br/>
-*Q:Whydo hamburgers go to the gym?* <br/>
+STRAIGHT TO THE GLUTES <br/>
+*Q: Why do hamburgers go to the gym?* <br/>
 A: To get better buns.
 
 WHATS THE QUESA-DEALLY-YO? <br/>
-*Iwrote a song about a tortilla. Well actually, it’s more of a wrap.*
+*I wrote a song about a tortilla. Well actually, it’s more of a wrap.*
 
 HALLOWEENMATH <br/>
-*Q:Whatdo you get if you divide the circumference of a jack-o-lantern by its diameter?* <br/>
+*Q: What do you get if you divide the circumference of a jack-o-lantern by its diameter?* <br/>
 A: Pumpkin pi
 
 SWEETROMANCE <br/>
-*Q:Whydid the apricot ask a prune to dinner?* <br/>
+*Q: Why did the apricot ask a prune to dinner?* <br/>
 A: Because he couldn't find a date.
 
-CANYOU MOOOOOVE? <br/>
-*Q:Whatdo you get from a pampered cow?* <br/>
+CAN YOU MOOOOOVE? <br/>
+*Q:What do you get from a pampered cow?* <br/>
 A: Spoiled milk.
 
-THEHIP WAY TO EAT <br/>
-*Q:Howdo you get a hipster to eat a hot dog?* <br/>
+THE HIP WAY TO EAT <br/>
+*Q: How do you get a hipster to eat a hot dog?* <br/>
 A: Put it in a man bun.
 
 COME ON, I’M A "FUNGI.” <br/>
@@ -3777,27 +3777,27 @@ COME ON, I’M A "FUNGI.” <br/>
 A. As mushroom as possible.
 
 ESCAR-DONT-GO <br/>
-*Q:Whydo French people eat snails?* <br/>
+*Q: Why do French people eat snails?* <br/>
 A: Because they won't touch fast food.
 
-WHENLIFE GIVES YOU MELONS… <br/>
-*Q:Whatdo you do when life gives you melons?* <br/>
+WHEN LIFE GIVES YOU MELONS… <br/>
+*Q:What do you do when life gives you melons?* <br/>
 A: See a doctor, because you’re probably dyslexic.
 
-APACK OF PRYING PEPPERS <br/>
-*Q:Whatdoes a nosy pepper do?* <br/>
+A PACK OF PRYING PEPPERS <br/>
+*Q:What does a nosy pepper do?* <br/>
 A: Gets jalapeño business.
 
 SPYGHETTI <br/>
-*Q:Whatdo you call a dishonest noodle?* <br/>
+*Q:What do you call a dishonest noodle?* <br/>
 A: An Impasta.
 
 ## Diet Jokes
 ONE IS ENOUGH <br/>
-*Whileshopping for a bathroom scale, I found one that tracks not only weight but also body fat, bone mass, and water percentage. I nixed that one in favor of a low-tech model. As I told the salesperson, “I don’t need to be depressed four ways; one is quite enough.”*
+*While shopping for a bathroom scale, I found one that tracks not only weight but also body fat, bone mass, and water percentage. I nixed that one in favor of a low-tech model. As I told the salesperson, “I don’t need to be depressed four ways; one is quite enough.”*
 
-FORHERE OR TO GO? <br/>
-*Somethingtells me I need to lose some weight. During a recent trip to visit my son and his family, I stopped off at a bakery to pick up dessert. After scanning the display case, I settled on a dozen pound-cake cupcakes. The clerk’s pleasant response: “Is that for here or to go?”*
+FOR HERE OR TO GO? <br/>
+*Something tells me I need to lose some weight. During a recent trip to visit my son and his family, I stopped off at a bakery to pick up dessert. After scanning the display case, I settled on a dozen pound-cake cupcakes. The clerk’s pleasant response: “Is that for here or to go?”*
 
 ILL TAKE MINE TO GO <br/>
 *Q:Why go to the paint store when you're on a diet?* <br/>
@@ -3807,52 +3807,52 @@ YOULL LOVE THIS ONE <br/>
 *Q:Why shouldn't you fall in love with a pastry chef?* <br/>
 A: He'll dessert you.
 
-HOWLOW CAN YOU GO? <br/>
+HOW LOW CAN YOU GO? <br/>
 *I tell people I'm on a low-carb diet. But in reality, I just eat pasta while lying on the floor. Stephen Colbert*
 
-OFF-COLOREATERS <br/>
+OFF-COLOR EATERS <br/>
 *Why did the diet coach send her clients to the paint store? She heard you could get thinner there.*
 
 WHATS YOUR BEEF? <br/>
 *Becoming a vegetarian is a huge missed steak.”*
 
-VEGANINSULT <br/>
+VEGAN INSULT <br/>
 *Q:How did Native Americans say vegetarian?* <br/>
 A: "Bad hunter!"  
 
-DIETDOWNER <br/>
+DIET DOWNER <br/>
 *I'm not vegetarian because I love animals. I'm vegetarian because I hate vegetables.*
 
-VEGANCROSSROADS <br/>
+VEGAN CROSSROADS <br/>
 *Did you hear about the vegan devil worshipper? He sold his soul to seitan!*
 
-NATIONWIDEEATING PLAN <br/>
+NATIONWIDE EATING PLAN <br/>
 *"Im not interested in any diet plan unless it lets me use rollover calories."—@sbellelauren*
 
-NACHONORMAL DIET <br/>
+NACHO NORMAL DIET <br/>
 *The only difference in my life when I’m on a diet is instead of saying, “I ate nachos,” I say, “I accidentally ate nachos.”—@behindyourback*
 
-SUGARFREE <br/>
+SUGAR FREE <br/>
 *Q.What do you call someone who can't stick with a diet?* <br/>
 A. A desserter.  
 
-TIMEWEIGHS ON YOU <br/>
+TIME WEIGHS ON YOU <br/>
 *Did you hear about the hungry clock? He went back four seconds.*
 
-CAN-DODIET <br/>
+CAN-DO DIET <br/>
 *Q.What is a man's idea of a balanced diet?* <br/>
 A. A beer in each hand.  
 
-IHAVE A DIETER INSIDE ME <br/>
-*Insid eme lives a skinny woman crying to get out.*
+I HAVE A DIETER INSIDE ME <br/>
+*Inside me lives a skinny woman crying to get out.*
 
-GETTHROWN OUT <br/>
+GET THROWN OUT <br/>
 *A great way to lose weight is to eat while you are naked and standing in front of a mirror.  Restaurants will always throw you out before you can eat too much.*
 
-FATTENINGSPOON <br/>
+FATTENING SPOON <br/>
 *The most fattening thing that you can put in an ice cream sundae is the spoon.*
 
-CHOCOLATECHIP DIET <br/>
+CHOCOLATE CHIP DIET <br/>
 *Chocolate chips are fattening, about 50 calories a tablespoon.  However, chocolate chips eaten while making chocolate chip cookies have no calories whatsoever.  Therefore make chocolate chip cookies often but don't eat them.*
 
 DONT WATCH OTHERS EAT <br/>
@@ -3882,7 +3882,7 @@ LOSING IT <br/>
 NACHO NORMAL DIET <br/>
 *The only difference in my life when I’m on a diet is instead of saying, “I ate nachos,” I say, “I accidentally ate nachos.”—@behindyourback*
 
-NEVERSAY DIET <br/>
+NEVER SAY DIET <br/>
 *"If you lose weight when you stop drinking Diet Coke imagine how much we’d lose if we stopped dieting."—@JimGaffigan*
 
 LOVE YOU FROM AFAR <br/>
@@ -3897,7 +3897,7 @@ TABLE FOR TWO <br/>
 CANT HIDE <br/>
 *I keep trying to lose weight but it keeps finding me.*
 
-GUTDYSBIOSIS <br/>
+GUT DYS BIOSIS <br/>
 *Definition of Calories: Tiny creatures colonizing your closet. They sew your clothes a little bit tighter every night.*
 
 ITS NOT MY FAULT! <br/>
@@ -3909,17 +3909,17 @@ NOTHING BUT THE TRUTH <br/>
 JUST DREAMING… <br/>
 *Wouldn't it be so great if we could put ourselves in the dryer for 10 minutes and come out wrinkle free and three sizes smaller?*
 
-TIMETO DIET <br/>
-*Didyou hear about the hungry clock? He went back four seconds.*
+TIME TO DIET <br/>
+*Did you hear about the hungry clock? He went back four seconds.*
 
 PURSE SNATCHER’S DIET TIPS <br/>
-*Hey,Lady! Want to drop 5 pounds? Let go of the purse.*
+*Hey, Lady! Want to drop 5 pounds? Let go of the purse.*
 
 WEIGHING YOUR OPTIONS <br/>
 *What do you get when you put the right amount of meat and vegetables on a scale? A balanced meal.*
 
 I DID IT! <br/>
-*I ttook a lot of willpower, but I finally gave up dieting.*
+*It took a lot of willpower, but I finally gave up dieting.*
 
 STOP THOSE CRAVINGS <br/>
 *How do most people curb their appetite? At the drive thru window.*
@@ -3951,7 +3951,7 @@ DIET DAY 1 <br/>
 GIVING UP IS TASTY <br/>
 *What do you call someone who can't stick with a diet? A desserter.*
 
-GOODNEWS! <br/>
+GOOD NEWS! <br/>
 *I finally heard some good news. I'm not overweight. I'm undertall. What a relief!*
 
 SNACK ATTACK <br/>
@@ -3973,7 +3973,7 @@ THINK OUTSIDE THE BUN <br/>
 *I'm going to open up a low carb bakery and I'm going to call it No Bun Intended.*
 
 THE DIET WAGON <br/>
-*Whensomeone asks me if I quit my diet... not only did I fall off the diet wagon, I dragged it into the woods, set it on fire, and used the insurance money to buy Twinkies.*
+*When someone asks me if I quit my diet... not only did I fall off the diet wagon, I dragged it into the woods, set it on fire, and used the insurance money to buy Twinkies.*
 
 NACHO DIET <br/>
 *The only difference in my life when I'm on a diet is instead of saying "I ate nachos," I say "I accidentally ate nachos."*
@@ -3988,7 +3988,7 @@ ITS A LOVE/HATE RELATIONSHIP <br/>
 *I wish I hated pizza as much as pizza hates me.*
 
 FRIENDS FROM AFAR <br/>
-*Q:Haveyou heard of the garlic diet?* <br/>
+*Q:Have you heard of the garlic diet?* <br/>
 A: You don't lose much weight, but from a distance your friends think you look thinner!
 
 DEAR DIET… <br/>
@@ -4051,7 +4051,7 @@ A: He went back four seconds.
 YOU ARE WHAT YOU EAT <br/>
 *D.I.E.T.= Did I Eat That?*
 
-NOANIMAL TESTING <br/>
+NO ANIMAL TESTING <br/>
 *Q:Why does vegan cheese taste bad?* <br/>
 A: It hasn't been tested on mice.
 
@@ -4060,7 +4060,7 @@ READ THE LABEL <br/>
 A: Two, one to change it and one to check for animal ingredients.
 
 ITS GLUTEN-Y GOOD <br/>
-*Didyou hear about the vegan devil worshipper? He sold his soul to seitan!*
+*Did you hear about the vegan devil worshipper? He sold his soul to seitan!*
 
 CAVE MAN DIET <br/>
 *Q:How many carnivores does it take to change a light bulb?* <br/>
@@ -4070,10 +4070,10 @@ I HAVE NO BEEF WITH YOU <br/>
 *Q:What do you call a dumb omnivore?A: A meathead!*
 
 NOW MINERALS FEEL LEFT OUT <br/>
-*I'mnot vegetarian because I love animals. I'm vegetarian because I hate vegetables.*
+*I'm not vegetarian because I love animals. I'm vegetarian because I hate vegetables.*
 
 CANT CATCH A BREAK <br/>
-*Q:What is the Native American word for vegetarian?* <br/>
+*Q: What is the Native American word for vegetarian?* <br/>
 A: "Poor hunter!"
 
 YOU CAN’T FORGET THAT FACE <br/>
