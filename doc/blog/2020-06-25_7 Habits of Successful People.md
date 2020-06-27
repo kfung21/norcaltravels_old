@@ -5,6 +5,7 @@ excerpt: How to be effective in Life
 type: blog
 blog: true
 hidden: false
+sidebar: auto
 tags:
     - work
     - communication
