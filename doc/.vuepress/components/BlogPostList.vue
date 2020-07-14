@@ -39,6 +39,7 @@ export default {
                     const hasTags = !!item.frontmatter.tags && this.selectedTags.every((tag) => item.frontmatter.tags.includes(tag))
 
                     if (!isBlogPost || !isReadyToPublish || isHidden || (this.selectedTags.length > 0 && !hasTags) || !isCurrentLocale){ 
+                    // if (!isBlogPost || !isReadyToPublish || (this.selectedTags.length > 0 && !hasTags) || !isCurrentLocale){ 
                         return false
                     }
 
@@ -106,9 +107,9 @@ export default {
         <ul class="blog-list">
             <br/>
             <li v-for="(item, index) in filteredList"
-                class="blog-list__item card">
+                class="blog-list__item card" 
+                v-show="index >= currentPage * pageSize && index < (currentPage + 1) * pageSize">
                 <BlogPostPreview 
-                    v-show="index >= currentPage * pageSize && index < (currentPage + 1) * pageSize"
                     :item="item"
                 />
                 <ul v-for="tag in item.frontmatter.tags" class="blog-list__tags">
